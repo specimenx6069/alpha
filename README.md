@@ -2,3 +2,5 @@
 https://lucid.blog/specimenx6069/post/1566601815
 
 https://twitter.com/specimenx_2006/status/1165029665272139778
+
+https://lucid.blog/specimenx6069/post/my-sojourn-so-far-with-css-b95
